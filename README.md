@@ -1,2 +1,0 @@
-# manognyabezawada
-website
